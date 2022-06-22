@@ -1,2 +1,0 @@
-# Shakib-Portfolio
-My information
